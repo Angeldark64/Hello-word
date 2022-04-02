@@ -1,4 +1,1 @@
-# Hello-word
-mis primeros pasos.
-que me cuenta mi pes, soy un novato en esto de la programacion pero dare lo mejor de mi para poder salir adelante con esto <3
-f000000
+awhdlkwhfkwkhfkqhwrkjhqwerphqwlñrhqwelkrhqwehjrqlwekrjhqwj![backiee-210560](https://user-images.githubusercontent.com/102547044/161403920-c3fd8dab-6033-44a3-8d30-9bfef2dd74d7.jpg)
